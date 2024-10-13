@@ -16,7 +16,7 @@ I’m a **Physicist** with a deep passion for **Deep Learning** and **Scientific
  todo
 
 ## 🌐 How to Reach Me
-- 💼 [LinkedIn]([https://linkedin.com/in/yourusername](https://www.linkedin.com/in/pasquale-c-9108a1133/))
+- 💼 [LinkedIn](https://linkedin.com/in/yourusername](https://www.linkedin.com/in/pasquale-c-9108a1133/))
 
 
 ## ⚡ Fun Fact
